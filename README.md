@@ -1,7 +1,7 @@
-A kind of time-honored treasure, it can destroy old cognition and reconstruct biological brain/neurals/mentality... more details will come soon. 
+LR9 is a kind of time-honored treasure, it can destroy old cognition and reconstruct biological brain/neurals/mentality... more details will come soon. 
 These will give you unprecedented insight and creativity.
 
-These modes can be applied into omni-aspect of industry, even lifestyle. And it is a very old technology. It may be similar to the book of changes, which is also known as 易经 in chinese.
+This theory(LR9) integrates philosophy, methodology, practice, human and other factors. These modes can be applied into omni-aspect of industry, even lifestyle. And it is a very old technology. It may be similar to the book of changes, which is also known as 易经 in chinese.
 
 here is an interesting tips:
 <i>所谓太极生两仪，两仪生四象，四象生八卦
