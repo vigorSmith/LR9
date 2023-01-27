@@ -41,3 +41,5 @@ the frst is creative, it is also the killer mace: ● ● ● ●
 ...
 After decades of sorting and practice, the first edition will be published soon.
 
+
+//A certain amount -> Adequate quantity-> Chaotic quantity
