@@ -1,6 +1,7 @@
 LR9 is a kind of time-honored treasure, and it is the Bible of modern office workers. 
 It can destroy old cognition and reconstruct biological brain/neurals/mentality... more details will come soon. 
 These will give you unprecedented insight and creativity.
+
 //Thinking framework -> action framework -> feedback -> reflecion
 
 This theory(LR9) integrates philosophy, methodology, practice, human and other factors. These modes can be applied into omni-aspect of industry, even lifestyle. And it is a very old technology. This system will enable you to show your strength at anytime and anywhere. 
